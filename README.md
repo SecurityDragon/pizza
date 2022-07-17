@@ -1,2 +1,2 @@
-# pizza
+# Pizza
 Recept på pizzadeg
