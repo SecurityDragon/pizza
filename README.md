@@ -23,7 +23,7 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 2 teskedar salt.
 1 matsked olivolja.
 
-#### Instruktion - Steg 2
+##### Instruktion - Steg 2
 1. Efter 48 timmar, ta ut degen från kylen.
 2. Ta fram degmaskin, eller liknande. Dela upp degen i mindre bitar och lägg den i degmaskinen.
 3. Häll i 100 miligram vatten och 2 teskedar salt i degmaskinen.
