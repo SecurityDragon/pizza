@@ -9,5 +9,4 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 - 10 gram färsk jäst.
 - 300 miligram vatten.
 - 5 gram honung.
-
-
+##### Instruktion
