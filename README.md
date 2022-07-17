@@ -15,4 +15,4 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 3. När allt är blandat häll i innehållet i ungsformen/behållaren/plastlåda och fördela vätskan runt om. 
 4. Blanda väl, gärna med en pizzaskrapa/stekbordsskrapa eller liknande. Fortsätt under 5 minuter till allt är blandat i små degklumpar.
 5. Häll i allt i en plastbunke med lock. Alternativt använd plastfolie och förslut väl. Låt det stå framme i en timme.
-6. Låt degen stå i kylskåp i 48 timmar, eller mer.
+6. Sätt in degen i kylskåp under ca: 48 timmar, eller mer.
