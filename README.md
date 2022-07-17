@@ -19,9 +19,9 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 6. Sätt in degen i kylskåp under ca: 48 timmar, eller mer.
 
 #### Ingredienser - Steg 2
-100 miligram vatten.
-2 teskedar salt.
-1 matsked olivolja.
+- 100 miligram vatten.
+- 2 teskedar salt.
+- 1 matsked olivolja.
 
 ##### Instruktion - Steg 2
 1. Efter 48 timmar, ta ut degen från kylen.
