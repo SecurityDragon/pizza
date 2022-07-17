@@ -28,5 +28,8 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 2. Ta fram degmaskin, eller liknande. Dela upp degen i mindre bitar och lägg den i degmaskinen.
 3. Häll i 100 miligram vatten och 2 teskedar salt i degmaskinen.
 4. Låt degen blandas i maskinen under ca: 15 min.
-5. Lått degen stå i maskinen i ca: 15 min.
-6.  
+5. Lått degen stå i maskinen avstängd i ca: 15 min.
+6. Ta ut degen, och forma en cirkelformad deg. (Ha lite olivolja på händerna för att minska risken för att det fastnar i händerna). 
+7. Lägg lite platfolie runt och låt degen stå i ca 1 timme i rumstemperatur.
+8. 
+ 
