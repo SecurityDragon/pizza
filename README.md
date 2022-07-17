@@ -10,6 +10,9 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 - 300 miligram vatten.
 - 5 gram honung.
 ##### Instruktion
-- Häll i 600 fram 00-mjöl i en djup ungsform eller pizzabehållare.
-- Blanda 300 miligram vatten tillsammans med 10 gram färsk jäst och 5 gram honung.
--- När allt är blandat häll i innehållet i ungsformen/behållaren och fördela vätskan runt om. 
+1. Häll i 600 fram 00-mjöl i en djup ungsform eller pizzabehållare.
+2. Blanda 300 miligram vatten tillsammans med 10 gram färsk jäst och 5 gram honung.
+3. När allt är blandat häll i innehållet i ungsformen/behållaren/plastlåda och fördela vätskan runt om. 
+4. Blanda väl, gärna med en pizzaskrapa/stekbordsskrapa eller liknande. Fortsätt under 5 minuter till allt är blandat i små degklumpar.
+5. Häll i allt i en plastbunke med lock. Alternativt använd plastfolie och förslut väl. Låt det stå framme i en timme.
+6. Låt degen stå i kylskåp i 48 timmar, eller mer.
