@@ -34,6 +34,8 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 7. Lägg lite platfolie runt och låt degen stå i ca 1 timme i rumstemperatur.
 8. Gör fyra degbitar. Förslut degen väl så luften finns kvar.
  
+För mer detaljerad information, se: https://youtu.be/V2RCYjVhb9w 
+
  ### Förslag på toppings
  
  #### Margherita (klassiker)
