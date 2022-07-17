@@ -36,10 +36,11 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
  
  ### Förslag på toppings
  
- #### Margherita (Klassiker)
- - Mozzarella. (Gör som strips bitar, gärna Galbani).
+ #### Margherita (klassiker)
+ - Mozzarella. (Gör som mindre stripsbitar, gärna Galbani).
  - Tomatsås. Gärna Mutti. Lägg till en tesked salt per 100 gram tomatsås samt några färska basilikablad.
  - Riven parmensanost över tomatsåsen (riktligt).
  - Basilikablad som fördelas under mozzarellan på pizzan.
  
- #### Margherita (Klassiker)
+ #### Fiocco
+ - 
