@@ -39,6 +39,6 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
  - Mozzarella. (Gör som strips bitar)
  - Tomatsås. (Använd gärna Mutti). Lätt till en tesked salt per 100 gram samt några färska Basilikablad.
  - Riven parmensanost.
- - Basilikablad som fördelas under osten.
+ - Basilikablad som fördelas under osten på pizzan.
  
  #### Margherita (Klassiker)
