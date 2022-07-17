@@ -35,10 +35,11 @@ Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningsste
 8. Gör fyra degbitar. Förslut degen väl så luften finns kvar.
  
  ### Förslag på toppings
+ 
  #### Margherita (Klassiker)
- - Mozzarella. (Gör som strips bitar)
- - Tomatsås. (Använd gärna Mutti). Lätt till en tesked salt per 100 gram samt några färska Basilikablad.
- - Riven parmensanost.
- - Basilikablad som fördelas under osten på pizzan.
+ - Mozzarella. (Gör som strips bitar, gärna Galbani).
+ - Tomatsås. Gärna Mutti. Lägg till en tesked salt per 100 gram tomatsås samt några färska basilikablad.
+ - Riven parmensanost över tomatsåsen (riktligt).
+ - Basilikablad som fördelas under mozzarellan på pizzan.
  
  #### Margherita (Klassiker)
