@@ -1,5 +1,5 @@
-# Recepr på pizzadeg
-Recept på Napolitansk pizzadeg
+# Recept på pizzadeg 
+Recept på Napolitansk 48-timmars pizzadeg.
 
 ### BIGA (No stress)
 Detta recept kommer från Roberto Substa som äger resturangen http://sustable.it.
