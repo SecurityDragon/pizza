@@ -1,4 +1,4 @@
-# Pizza
+# Recepr på pizzadeg
 Recept på Napolitansk pizzadeg
 
 ### BIGA (No stress)
