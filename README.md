@@ -15,7 +15,7 @@ Med detta recept får du 3-4 pizzor.
 ##### Instruktion - Steg 1
 1. Häll i 600 fram 00-mjöl i en djup ungsform/pizzabehållare/plastlåda.
 2. Blanda 300 miligram vatten tillsammans med 10 gram färsk jäst och 5 gram honung.
-3. När allt är blandat (vatten/jäst/honung) häll i innehållet i ungsformen/behållaren/plastlåda och fördela vätskan runt om. 
+3. När allt är blandat (vatten/jäst/honung) häll i innehållet i ungsformen/behållaren/plastlåda och fördela vätskan runt om mjölet.
 4. Blanda väl, gärna med en pizzaskrapa/stekbordsskrapa eller liknande. Fortsätt under 5 minuter till allt är blandat i små degklumpar.
 5. Häll i allt i en plastbunke med lock. Alternativt använd plastfolie och förslut väl. Låt det stå framme i en timme.
 6. Sätt in degen i kylskåp under ca: 48 timmar, eller mer.
