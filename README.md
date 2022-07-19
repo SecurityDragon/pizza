@@ -4,6 +4,7 @@ Recept på Napolitansk pizzadeg
 ### BIGA (No stress)
 Detta recept kommer från Roberto Substa som äger resturangen http://sustable.it.
 Som många andra Napolitanska pizzadeg genomförs degen i olika förjäsningssteg som gör att degen blir enklare att bearbeta och smälta i magen - man blir inte så uppblåst. Därutöver är degen otroligt god.
+Med detta recept får du 3-4 pizzor. 
 
 #### Ingredienser - Steg 1
 - 600 gram 00-mjöl (finns att köpa i de flesta affärer idag).
@@ -49,3 +50,4 @@ För mer detaljerad information, se: https://youtu.be/V2RCYjVhb9w
 
 # Frysa pizzadeg
 https://youtu.be/PCQ0maTaTMA
+
